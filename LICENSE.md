@@ -1,4 +1,4 @@
-# 
+# pls donate Scripts premium is the best pls donate Script, featuring no cooldown and one-hit kill. Safe and powerful for all your needs.
 
 
 
